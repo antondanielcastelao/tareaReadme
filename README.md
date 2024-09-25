@@ -11,3 +11,5 @@ La Invasión de Yugoslavia, llamada **«Operación 25»** por las fuerzas del Ej
 
 ### - Resolucion :+1: 
 ***La victoria del Eje llegó pronto, tan solo once días después del comienzo de la campaña. La decisión del alto mando yugoslavo no ayudó a resistir el embate, ya que ordenó a su ejército defender el país desde todas sus fronteras, algo difícil de lograr si se considera la mayor calidad de las fuerzas alemanas. Medio movilizado, mal pertrechado y superado en número, el Ejército yugoslavo fue derrotado por el enemigo a pesar de lograr alguna victoria local. La superioridad de la fuerza aérea y acorazada alemana y la movilidad de sus unidades consiguieron llevar a cabo la operación relámpago que Hitler había ordenado pocos días antes. Los alemanes vencieron a un enemigo que desplegó más de un millón de soldados y sufrieron escasísimas bajas en una campaña de doce días.***
+
+![imagen de yugoslavia](https://upload.wikimedia.org/wikipedia/commons/thumb/8/80/Invasion_of_Yugoslavia_lines_of_attack_Why_We_Fight_no._5-es.svg/300px-Invasion_of_Yugoslavia_lines_of_attack_Why_We_Fight_no._5-es.svg.png)
